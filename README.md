@@ -1,2 +1,2 @@
 # Final_SE
-Final_SE
+Mariana Ospina Mejia 
